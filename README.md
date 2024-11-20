@@ -4,7 +4,7 @@ Meu nome é _Biia_
 
 **Dando um start na programação, aceito dicas e criticas construtivas**
 
-## Qualquer coisa add no _discord_🫐
+## Qualquer coisa add no _discord_ 🫐
 
 _biiaa
 
